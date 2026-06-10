@@ -1,4 +1,4 @@
-# 
+# Professionnel dydx trading bot outils pour Mac OS | Élite dydx trading bot outils pour PC Windows. Avec analyse du carnet d'ordres et gestion de portefeuille — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
